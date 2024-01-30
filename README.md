@@ -1,1 +1,1 @@
-# nbionlineclearance
+The National Bureau of Investigation (NBI) has also embraced this transformation by offering an online registration system for NBI Clearance Applications via https://nbi-onlineclearance.com/. NBI Clearances have become easier to obtain as a result of this user-friendly approach. They are crucial documents for various official purposes.
